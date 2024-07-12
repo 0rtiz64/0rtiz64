@@ -1,2 +1,4 @@
 # PersonalReadme
-Readme
+- Hi, i'm David Ortiz 🙋‍♂️
+- Keep Learning 📚
+- Stay focused 🎯
